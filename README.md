@@ -19,6 +19,12 @@ In this interaction, why should any party trust the other party's words when the
 How many more "day or two" do I have to wait till HIS WORDS are valid? <br>
 
 ### End of Message: DO NOT READ FROM THE TOP-DOWN, READ STARTING FROM THE BOTTOM-UP ###
-
-
+![](NGUG-8.png)
+![](NGUG-7.png)
+![](NGUG-6.png)
+![](NGUG-5.png)
+![](NGUG-4.png)
+![](NGUG-3.png)
+![](NGUG-2.png)
+![](NGUG-1.png)
 ### Beginning of Message: READ STARTING FROM HERE, READ STARTING FROM HERE TO THE TOP ###
