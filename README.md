@@ -11,9 +11,11 @@ From the conversation, I have concluded the following: <br>
 - The seller says the cards are on the way but has NO PROOF OR TRACKING INFORMATION to confirm that the cards are enroute. <br>
 - The seller DODGES every request or opportunity to refund me when asked. <br>
 <br>
-UPDATE: On a seperate thread after my review, the seller also stated that it is TOO LATE to give me the refund because the refund period has expired. <br> 
-If the seller knew that the delivery would be beyond the EDD (Estimated Delivery Date), why would the seller "supposedly" ship these cards in the first place?
+UPDATE: On a seperate thread after my review, the seller also stated that it is TOO LATE to give me the refund because the refund period has expired.
+
 ![](Seperatethread.png)
+
+If the seller knew that the delivery would be beyond the EDD (Estimated Delivery Date), why would the seller "supposedly" ship these cards in the first place?
 
 Below is my full message history with the seller. <br>
 This should be read bottom-up as the latest messages are on top. <br>
