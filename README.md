@@ -15,7 +15,7 @@ From the conversation, I have concluded the following: <br>
 Below is my full message history with the seller. <br>
 This should be read bottom-up as the latest messages are on top. <br>
 
-One noteworthy thing to mention is that the seller asked if he has MY WORD that I'll return the cards if I receive them. <br>
+One noteworthy thing I want to mention is that the seller asked if he has MY WORD that I'll return the cards if I (ever) receive them. <br>
 In this interaction, why should any party trust the other party's words when the seller has repeatedly told me that "the cards show up ina day or two" despite them not showing up. <br>
 How many more "day or two" do I have to wait till HIS WORDS are valid? <br>
 
