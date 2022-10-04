@@ -12,7 +12,7 @@ From the conversation, I have concluded the following: <br>
 - The seller DODGES every request or opportunity to refund me when asked. <br>
 <br>
 UPDATE: On a seperate thread after my review, the seller also stated that it is TOO LATE to give me the refund because the refund period has expired. <br> 
-If the seller knew that the delivery would be beyond the EDD (Estimated Delivery Date), why would the seller "supposedly" ship these cards in the first place? <br>
+If the seller knew that the delivery would be beyond the EDD (Estimated Delivery Date), why would the seller "supposedly" ship these cards in the first place?
 ![](Seperatethread.png)
 
 Below is my full message history with the seller. <br>
