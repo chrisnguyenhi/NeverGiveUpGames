@@ -3,6 +3,7 @@
 ## Below highlights my interactions with NeverGiveUpGames. <br>
 I ordered from NeverGiveUpGames on September 11, 2022. <br>
 As of October 03, 2022, the order has not arrived. <br>
+![](NGUG-0.png)
 <br>
 I contacted NeverGiveUpGames regarding this order going beyond the EDD (Estimated Delivery Date). <br>
 From the conversation, I have concluded the following: <br>
